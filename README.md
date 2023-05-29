@@ -18,4 +18,4 @@ Nos reservamos el derecho de modificar esta política de privacidad en cualquier
 
 Al usar nuestra aplicación, usted acepta nuestra política de privacidad.
 
-Para cualquier pregunta relacionada con nuestra política de privacidad, por favor contáctenos en [tu correo electrónico].
+Para cualquier pregunta relacionada con nuestra política de privacidad, por favor contáctenos en steamthinkingsm@gmail.com
